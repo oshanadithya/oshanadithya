@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oshanadithya
 - 👀 I’m interested in Information Technology and Bussiness Inteligence
-- 🌱 I’m currently learning IT
+- 🌱 I’m currently learning computer science & information technology
 - 💞️ I’m looking to collaborate on system development
 - 📫 reach me by oshanweerasinghe28@gmail.com
 
