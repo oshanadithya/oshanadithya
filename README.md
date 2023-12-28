@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **oshanweerasinghe28@gmail.com**
 
-- ⚡ Fun fact **I very open minded person**
+- ⚡ Fun fact **I am a very open minded person**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
